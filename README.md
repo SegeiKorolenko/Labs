@@ -1,2 +1,0 @@
-# Blyat
-First pancake cumom : \
